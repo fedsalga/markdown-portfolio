@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Perros
+2. QCY
+3. Estas mas duro que el Maestruli
+4. Vamo MESSI
